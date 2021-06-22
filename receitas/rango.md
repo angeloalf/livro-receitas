@@ -1,4 +1,4 @@
-# Frango frito
+# Frango frito 🐣
 
 ### Ingredientes
 
